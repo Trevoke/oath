@@ -17,4 +17,4 @@ V. A builder shall continue to study, apply and advance scientific knowledge, ma
 
 VI. A builder shall recognize a responsibility to participate in activities contributing to an improved community.
 
-VII. A builder shall refuse to build anything that would be detrimental to the survival of the species
+VII. A builder shall refuse to build anything that would be detrimental to the survival of the species.
